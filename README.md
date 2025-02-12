@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Slenderman0702
 - 👀 I’m interested in coding 
-- 📫 How to reach me: DM me 𝕴𝖓𝖙𝖊𝖑𝖑𝖊𝖈𝖙𝖚𝖆𝖑 𝕾𝖑𝖊𝖓𝖉𝖊𝖗𝖒𝖆𝖓#7209
+
